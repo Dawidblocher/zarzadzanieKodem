@@ -1,1 +1,1 @@
-Dawid Blocher - zadanie 5
+Dawid Blocher - zadanie 6
